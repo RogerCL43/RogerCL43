@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @RogerCL43
+- 👀 I’m interested in Coding and Gaming
+- 🌱 I’m currently learning JavaScript
+- 📫 How to reach me Discord: Roger43#1095
